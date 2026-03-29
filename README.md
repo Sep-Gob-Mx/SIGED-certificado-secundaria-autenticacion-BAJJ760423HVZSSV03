@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BAJJ760423HVZSSV03
+BAJJ760423HVZSSV03
